@@ -2,11 +2,11 @@ invitation for join to groups : GOD JESUS SAVIOR
 
 Well Come All Brothers Sisters In GOD JESUS SAVIOR from all nations in the world
 
-this group share informations of Christian news from all nations in the world
+this groups share informations of Christian news from all nations in the world
 
-this group share testimonies of Christian from all nations in the world
+this groups share testimonies of Christian from all nations in the world
 
-this group share events of Christian from all nations in the world
+this groups share events of Christian from all nations in the world
 
 PRAYS GOD JESUS SAVIOR BLESS PROTECT ALL OF US LIVE SAFE PEACE JOY HAPPY FOREVER AMEN HALELUYA
 
