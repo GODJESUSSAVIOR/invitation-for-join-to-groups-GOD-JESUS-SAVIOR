@@ -1,12 +1,12 @@
-invitation for join to groups : GOD JESUS SAVIOR
+invitation to join groups of GOD JESUS SAVIOR :
 
 Well Come All Brothers Sisters In GOD JESUS SAVIOR from all nations in the world
 
-this groups share informations of Christian news from all nations in the world
+this group share informations of Christian news from all nations in the world
 
-this groups share testimonies of Christian from all nations in the world
+this group share testimonies of Christian from all nations in the world
 
-this groups share events of Christian from all nations in the world
+this group share events of Christian from all nations in the world
 
 PRAYS GOD JESUS SAVIOR BLESS PROTECT ALL OF US LIVE SAFE PEACE JOY HAPPY FOREVER AMEN HALELUYA
 
@@ -14,7 +14,7 @@ GOD JESUS SAVIOR telegram group :
 https://t.me/GODJESUSSAV1OR
 
 GOD JESUS SAVIOR whatsapp group :
-https://chat.whatsapp.com/GMniHuqXEHTGufm7GGWUpO
+https://chat.whatsapp.com/GQBkb8NZDAV1DfbnVWD7Fe
 
 GOD JESUS SAVIOR facebook group :
 https://facebook.com/groups/1093116765433493
